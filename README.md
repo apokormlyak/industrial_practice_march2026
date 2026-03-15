@@ -1,1 +1,1 @@
-# industrial_practice_march2026
+практика 2026
